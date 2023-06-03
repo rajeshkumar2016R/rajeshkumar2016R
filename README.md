@@ -1,3 +1,5 @@
+![logo](https://user-images.githubusercontent.com/39916680/132490679-1b93cc7e-d718-4410-9f43-8a5387c2cc7a.png)
+
 <h1 align="center">Hi 👋, I'm Rajesh Kumar Ojha</h1>
 <h3 align="center">A passionate frontend developer from India</h3>
 
