@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **rrrajeshkumarojha2016@gmail.com**
 
-- 📄 Know about my resume https://drive.google.com/file/d/1rjsjQMll59OwlTN4HqvRScut5tzJAa6n/view?usp=sharing
+- 📄 Know about my resume https://drive.google.com/file/d/1fgxD7TDNNULHOaLWo1pnndldoI_bhW5m/view?usp=sharing
 
 - ⚡ Hobbies **Playing video games, watching movies, codding, playing cricket**
 
